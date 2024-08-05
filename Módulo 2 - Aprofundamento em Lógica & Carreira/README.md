@@ -51,15 +51,14 @@
 ## Minha evolução: o que aprendi sobre os assuntos que foram abordados nesse módulo?
 
 
-- 
+- Consegui alcançar os obejetivos destacados em 'O que quero aprender'.
 
-- 
+- Consegui alcançar os obejetivos destacados em 'O que quero aprender'.
 
-- 
+- Consegui alcançar os obejetivos destacados em 'O que quero aprender'.
 
-- 
+- Consegui alcançar os obejetivos destacados em 'O que quero aprender'.
 
-- 
+- Consegui alcançar os obejetivos destacados em 'O que quero aprender'.
 
-- 
-
+- Consegui alcançar os obejetivos destacados em 'O que quero aprender'.
